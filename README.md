@@ -1,2 +1,4 @@
 # COALISALIAR
-LOL COAL HAS THE NERVE TO CALL ME RACIST WHN IM LIT A POC I showed proof, yes I defended kit but im not racist why would I be racist to my own people?
+LOL COAL HAS THE NERVE TO CALL ME RACIST WHN IM LIT A POC I showed proof, yes I defended kit but i'm not racist why would I be racist to my own people? just lying for fun 
+
+https://media.discordapp.net/attachments/1424746894285996136/1562229424823214200/lv_0_20261020171121-ezgif.com-mute-video.gif?ex=6af8df07&is=6af78d87&hm=2ac4b0f80f950fa865d8a1e586aa95d070744ca5d62df38d94590ffd6b002c2d
